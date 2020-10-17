@@ -15,4 +15,4 @@ ex. Shivam Bhasin : shivamvk.github.io
 
     Prabhakar : beingdifferent1993.github.io
 
-    Fariha Naqvi : farihanaqvi.github.io
+    Fariha Naqvi : farihaNaqvi.github.io
