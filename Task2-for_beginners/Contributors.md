@@ -5,6 +5,7 @@
 
 Adeoye Ayomide
 Shiavm Bhasin <br>
+Lakshya Dariwal aka LSD <br>
 Miguel A. Falcón Muñoz <br>
 Charnsak Dangmanee <br>
 Dibyendu Maji <br> 
